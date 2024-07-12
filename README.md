@@ -7,7 +7,7 @@
 
 - ⚡ One fact **I think that i'm a proactive person**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with mee:</h3>
 <p align="left">
 </p>
 
