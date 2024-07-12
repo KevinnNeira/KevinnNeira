@@ -4,9 +4,8 @@
 - 👨‍💻 All of my projects are available at [https://github.com/KevinnNeira](https://github.com/KevinnNeira)
 
 - 📫 How to reach me **neiraacostakevin08@gmail.com**
-
-- ⚡ One fact **I think that i'm a proactive person**
 https://images.app.goo.gl/W4MWQUvxwoExSdpZ7
+- ⚡ One fact **I think that i'm a proactive person**
 <h3 align="left">Connect with mee:</h3>
 <p align="left">
 </p>
